@@ -1,1 +1,1 @@
-# getsmartyai
+hotblonde
